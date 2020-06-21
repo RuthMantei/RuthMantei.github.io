@@ -1,1 +1,3 @@
-A website for my favourite character is currently being built here!
+# Shallan Devar 
+
+*wird hier nicht viel werden*, aber ich mag sie

@@ -1,3 +1,3 @@
 # Shallan Devar 
 
-*wird hier nicht viel werden*, aber ich mag sie
+Shallan ist eine Künstlerin, Betrügerin und Knight Radiant in Brandon Sandersons Stormlight Archive Serie.

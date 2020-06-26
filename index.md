@@ -7,3 +7,6 @@ Shallan ist eine Künstlerin, Betrügerin und Knight Radiant in Brandon Sanderso
 * rote Haare
 * violette Augen
 * ein eidetisches Gedächtnis
+
+> That might be the craziest thing you've  ever done.
+> Wich is saying a lot.
